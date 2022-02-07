@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @niniCube
+- 👀 I’m interested in js, node.js, java, python... 💃 dance and 🧊 rubik's cube
+- 🥺 and fat cats 🐾
+- 🌱 I’m currently learning js... and somehting else *)
+- 💞️ I’m looking to collaborate on anything 
+- 📫 How to reach me ni3959@g.rit.edu & igzy.2001@gmail.com 
